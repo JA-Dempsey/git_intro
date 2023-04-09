@@ -1,1 +1,4 @@
-James Andrew Dempsey 
+James Andrew Dempsey
+dempsjam@oregonstate.edu
+red
+chelmico
